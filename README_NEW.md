@@ -37,6 +37,11 @@ print("Your program takes: ", timetaken)
     1. Вложенный элемент
 
 
+Ссылка на страницу в ВК:
+https://vk.com/nikitoxxxyk
+
+Скрытая ссылка:
+[Моя страничка](https://vk.com/nikitoxxxyk)
 
 ![](https://papik.pro/grafic/uploads/posts/2023-04/1681565600_papik-pro-p-logotip-oksimirona-vektor-16.jpg)
 
