@@ -44,4 +44,5 @@ https://vk.com/nikitoxxxyk
 [Моя страничка](https://vk.com/nikitoxxxyk)
 
 ![](https://papik.pro/grafic/uploads/posts/2023-04/1681565600_papik-pro-p-logotip-oksimirona-vektor-16.jpg)
+![](https://sun9-78.userapi.com/impg/Fdy1Dofo2xXTUyhIV1Mv9LW7iYx7f2zI5swzbg/8HwspaZIH-E.jpg?size=1160x1544&quality=95&sign=6cc2353e028dfe58937c5b543dab38cf&type=album)
 
